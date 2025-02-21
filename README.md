@@ -1,4 +1,4 @@
-# 🚀 The Easiest & Fastest 2025 Payday Is Here! 🚀
+# 🚀 MovieReelAI Review 🚀
 
 ## 🚀 Launch Date: Thursday, February 20th @ 10 AM EST 🚀
 
